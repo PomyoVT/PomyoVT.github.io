@@ -1,1 +1,1 @@
-# PomyoVT.github.io
+# Smile SMP staff website
